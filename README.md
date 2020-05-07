@@ -2,6 +2,7 @@
 
 ![alt text](pictures/avatar.png "ere71q")
 
+![alt tag](https://sun1-98.userapi.com/HoqmQiSGXJACFzlVz8Em5rBqwHMA-qxAJK_RSQ/HW9LV-ozewc.jpg "ere71q")
 
 
 
