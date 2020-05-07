@@ -1,6 +1,6 @@
 ## Welcome to my profile
 
-![alt text](pictures/avatar.jpg "gg")
+![alt text](pictures/avatar.jpg "ere71q")
 
 
 
